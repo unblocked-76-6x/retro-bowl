@@ -1,4 +1,4 @@
-# Retro Bowl Unblocked 2 College
+# Retro Bowl Unblocked games 2 College
 
 https://cookieclicker.blog/
 
